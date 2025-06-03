@@ -1,0 +1,16 @@
+# Game Inspirations
+- AFK ARena
+- Ragnarok Online Idle Adventure Plus
+- Realms of Pixel
+- Unknown Knights: Pixel RPG
+- Endless Grades: Pixel Saga
+- Sword of Convallaria
+- Lost Sword
+- Epic 7
+- Eternal Heroes
+- Last Cloudia
+- Go Go Muffin
+- Puzzles & Dragons
+- Brave Frontier
+- Final Fantasy Brave Exvius
+- Tap Titans 2
